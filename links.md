@@ -1,0 +1,2 @@
+- https://discord.com/channels/1127340805741359164/1328020694835134580
+- https://github.com/lseinc
